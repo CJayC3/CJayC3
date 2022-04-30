@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CJayC3
+- 👋 Hi, I’m @JAY
 - 👀 I’m interested in music and acting
 - 🌱 I’m currently learning spanish
 - 💞️ I’m looking to collaborate on music and acting studios
